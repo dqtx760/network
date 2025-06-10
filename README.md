@@ -14,7 +14,7 @@
 
 ## 🧰机场推荐
 
-- [点此注册](https://coke.buyzur.com/#/register?code=L2FOV7Yb) 300G流量/月  仅需9.9元 
+- [点此注册](https://cokecloud.me/#/register?code=MvZ2iKtd) 300G流量/月  仅需9.9元 
 
 -  [远程代注册账号](https://xodnytdcaw.feishu.cn/wiki/ZOeHwecXHihm0fkgdzcck8TCnPb?fromScene=spaceOverview)
 
@@ -25,7 +25,7 @@
 
 1. [匿名临时邮箱](https://temp-mail.org/zh/)
 
-2. [随机密码生成](https://coke.buyzur.com/#/register?code=L2FOV7Yb)
+2. [随机密码生成](https://tool.cccyun.cc/rand_password)
 
 3. [美国地址生产器](https://usaddressgen.com/)
 
